@@ -1,1 +1,1 @@
-# smileminds.net
+# easytoast.net
